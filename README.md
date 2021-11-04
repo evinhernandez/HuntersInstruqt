@@ -1,1 +1,1 @@
-# HuntersInstruqt
+# Hunters Instruqt
